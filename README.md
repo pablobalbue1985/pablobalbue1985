@@ -2,8 +2,8 @@
 - 👀 I’m interested in Python, Java, C#, Burpsuit, Sql and My SQL.
 - 🌱 I’m currently learning ... Soy estudiante de programacion. 
 - 💞️ I’m looking to collaborate on ... en proyectos propios y ajenos, ayudo y ayuda!
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me pablobalbue1985@gmail.com
+- 😄 Pronouns:  El Conde
 - ⚡ Fun fact: ...
 
 <!---
