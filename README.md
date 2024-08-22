@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... en proyectos propios y ajenos, ayudo y ayuda!
 - 📫 How to reach me pablobalbue1985@gmail.com
 - 😄 Pronouns:  El Conde
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Queria estudiar turismo. jaja amo viajar.
 
 <!---
 pablobalbue1985/pablobalbue1985 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
